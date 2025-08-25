@@ -2,7 +2,7 @@
 <!--123123
 **dusuhua99/dusuhua99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you d2N5dnVqaW0=eHV6Zmx5YnE=Z29jcHVrd2U=dmh5cW9uYmY=cWN5emt1Z2E=ZWpjZ2Zucm8=Zm5oamtlcGI=started:
+Here are some ideas to get you d2lscW52eXU=d2N5dnVqaW0=eHV6Zmx5YnE=Z29jcHVrd2U=dmh5cW9uYmY=cWN5emt1Z2E=ZWpjZ2Zucm8=Zm5oamtlcGI=started:
 
 - 🔭 I’m currently working on ...bHZ0YZWpxeGt0aHI=3B1bWg=
 - 🌱 I’m currently learning ...
